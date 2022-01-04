@@ -1,6 +1,6 @@
 ## About Me
 
-I live near Waterloo, Ontario, Canada. I've been in software since I graduated with a Computer Science degree in 2006. I live with my wife and two children who make up the best bits of life. I am a baseball nerd...I love everything about the sport (statistics, history, watching, playing, coaching). I also love to work with my hands when I get the chance...home renovations and woodworking are my usual outlets. I play guitar very poorly.
+I live near Waterloo, Ontario, Canada. I've been in software since I graduated with a Computer Science degree in 2006. I live with my wife and two kids who make up the best bits of life. I am a baseball nerd...I love everything about the sport (statistics, history, watching, playing, coaching). I also love to work with my hands when I get the chance...home renovations and woodworking are my usual outlets. I play guitar very poorly.
 
 ## What Motivates Me
 
@@ -12,12 +12,12 @@ What demotivates me the most is the sense that myself or my colleagues have fall
 
 ## My Values (and what I value in others)
 
-I value and respect doing the 'right thing'...most especially when it might diminish personal accolades.
+I value and respect doing the 'right thing'...most especially with disregard personal accolades.
 I value feedback...both giving and receving in a respectful and empathetic way. More importantly, I value a culture that embraces mult-directional honest feedback.
 
 ## Where am I?
 
-My career has evolved over time (as they do). In the last five or so years, I've found myself drawn to leadership. I'm motivated by leading people in their careers as well as leading initiatives and units toward success. I've learned a lot about myself and others along the journey...and there's SO MUCH more for me to learn.
+My career has evolved over time (as they do). In the last five or so years, I've found myself drawn to leadership. I'm excited by leading people in their careers as well as leading initiatives and units toward success. I've learned a lot about myself and others along the journey...and there's SO MUCH more for me to learn.
 
 ## Pet Peeves
 
