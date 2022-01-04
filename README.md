@@ -8,16 +8,16 @@ My motivation over time has solidified into a fairly simple concept. I'm most mo
 
 ## What Demotivates Me
 
-What demotivates me the most is the sense that myself or my colleagues have fallen into a state of going through the motions. Loosing the spark for the work and the vibrance of the team.
+What demotivates me the most is the sense that myself or my colleagues have fallen into a state of going through the motions. Losing the spark for the work and the vibrance of the team.
 
 ## My Values (and what I value in others)
 
-I value and respect doing the 'right thing'...most especially with disregard personal accolades.
+I value and respect doing the 'right thing'...most especially with disregard for personal accolades.
 I value feedback...both giving and receving in a respectful and empathetic way. More importantly, I value a culture that embraces mult-directional honest feedback.
 
 ## Where am I?
 
-My career has evolved over time (as they do). In the last five or so years, I've found myself drawn to leadership. I'm excited by leading people in their careers as well as leading initiatives and units toward success. I've learned a lot about myself and others along the journey...and there's SO MUCH more for me to learn.
+My career has evolved over time (as they do). In the last five or so years, I've found myself embracing leadership. I'm excited by leading people in their careers as well as leading initiatives and units toward success. I've learned a lot about myself and others along the journey...and there's SO MUCH more for me to learn.
 
 ## Pet Peeves
 
